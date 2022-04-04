@@ -16,3 +16,9 @@ Geography and climate
 Ohrid is located in the south-western part of North Macedonia, on the shore of Lake Ohrid, at an elevation of 695 meters above sea level.
 
 Ohrid has a warm-summer mediterranean climate (Köppen climate classification: Csb), bordering on an oceanic climate (Köppen climate classification: Cfb) moderated by its elevation, as the mean temperature of the warmest month is just above 22 °C (71.6 °F) and every summer month receives less than 40 millimetres (1.6 in) of rainfall. The coldest month is January with the average temperature 2.5 °C (36.5 °F) or in a range between 6.2 °C (43.2 °F) and −1.5 °C (29.3 °F). The warmest month is August with average range of 27.7 °C (82 °F)-14.2 °C (57.6 °F). The rainiest month is November, which sees on average 90.5 mm (3.6 in) of rain. The summer months of June, July and August receive the least amount of rain, around 30 mm (1.2 in). The absolute minimum temperature is −17.8 °C (0.0 °F) and the maximum 38.5 °C (101.3 °F).
+Sports
+GFK Ohrid Lihnidos is a football team playing at the SRC Biljanini Izvori stadium in the city. As of the 2019–20 season they play in the second tier of the Macedonian Football League system.
+
+RK Ohrid is a handball team playing at Biljanini Izvori Sports Hall arena, with a capacity of 3,500. As of the 2016–17 season they play in the Macedonian Handball Super League, which is the top tier.
+
+The Ohrid Swimming Marathon is an international open water swimming competition, always taking place in the waters of Lake Ohrid. The swimmers are supposed to swim 30 km (19 mi) from the monastery of Saint Naum to the Ohrid harbor.
